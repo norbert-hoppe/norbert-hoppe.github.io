@@ -1,1 +1,1 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+* Hasen-Hans, dein Vorbild in den meisten Lebenslagen
